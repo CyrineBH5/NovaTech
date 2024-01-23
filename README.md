@@ -1,2 +1,0 @@
-# NovaTech-main
- 
